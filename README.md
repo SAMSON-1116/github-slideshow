@@ -1,4 +1,4 @@
-COLE  a discord moderator/ Community Manager in the WEB3 SPACE
+COLE, a discord moderator/ Community Manager in the WEB3 SPACE
 
 *About Me*
 
